@@ -1,2 +1,2 @@
 # Aleksey Ivankov
-## Belarus, Gomel
+## Belarus
